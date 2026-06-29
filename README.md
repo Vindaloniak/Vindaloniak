@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lapridox
+- 👋 Hi, I’m @Vindaloniak
 - 👀 I’m interested in Sports, Computer Science, Gaming
 - 🌱 I’m currently study Information Systems (B. Sc.)
 
